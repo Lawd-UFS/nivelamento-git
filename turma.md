@@ -4,3 +4,4 @@
 4. Andrews Gabriel - Mayze é paia
 5. Ylana Clara - Seja como nós, divas!
 6. Maria Luíse - Seja como nós, divas!
+7. Rhuan Pablo - cuida papai!!! 
